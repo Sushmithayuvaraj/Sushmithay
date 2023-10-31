@@ -6,3 +6,5 @@ https://magicconeicecream.blogspot.com/2023/10/cone-ice-cream-is-delightful-and.
 
 mail newsletter
 https://us21.admin.mailchimp.com/templates/share?id=199621330_6dac78efcbebef79822e_us21
+you tube link
+https://youtu.be/0T1EMsLjBhg
